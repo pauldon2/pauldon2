@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+- I'll add my resume here later
+  
 <!--
 **pauldon2/pauldon2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
