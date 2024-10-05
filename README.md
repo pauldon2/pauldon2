@@ -1,6 +1,10 @@
 ﻿>**Pavlo Shevtsov**
 >
->**Address:** Ukraine **E-mail:**  paulshevtsov@gmail.com **Phone:**  +380665758185
+>**Address:** Ukraine Ivano-Frankivs
+>
+>**E-mail:**  paulshevtsov@gmail.com
+>
+> **Phone:**  +380665758185
 >
 >**Skype:**  pauldonii
 >
