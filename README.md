@@ -1,6 +1,6 @@
 ﻿>**Pavlo Shevtsov**
 >
->**Address:** Ukraine Ivano-Frankivs
+>**Address:** Ukraine Ivano-Frankivsk
 >
 >**E-mail:**  paulshevtsov@gmail.com
 >
