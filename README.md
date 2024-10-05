@@ -77,6 +77,9 @@
 >May 2018 - Administration PostgreSQL Part2.
 >
 >Nov. 2019 - Kubernetes Basic (https://slurm.io/slurm\_online)
+>
+>Mar.2024 - May 2024 - DevOps та Kubernetes. https://prometheus.org.ua/prometheus-plus/devops_and_kubernetes/
+>
 
 ## **SPECIAL SKILLS**
 > 
