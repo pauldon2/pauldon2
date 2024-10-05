@@ -4,7 +4,7 @@
 >
 >**E-mail:**  paulshevtsov@gmail.com
 >
-> **Phone:**  +380665758185
+> **Phone:**  +380665758185 (Viber, Telegramm, WhatsApp)
 >
 >**Skype:**  pauldonii
 >
