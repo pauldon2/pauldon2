@@ -1,10 +1,9 @@
 ﻿>**Pavlo Shevtsov**
 >
->**Address:** Ukraine **E-mail:**  paulshevtsov@gmail.com Kyiv Gen. Zmachenko str. **Phone:**  +380665758185
+>**Address:** Ukraine **E-mail:**  paulshevtsov@gmail.com **Phone:**  +380665758185
 >
 >**Skype:**  pauldonii
 >
->**Date of birth:** 11 July 1964
 
 ## WORK EXPERIENCE
 
